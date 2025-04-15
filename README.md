@@ -13,3 +13,11 @@ Creo que las emociones muestran cómo interactuamos con los demás y cómo perci
 
 **¿Qué acciones tomaría si tuviera solo un año para vivir con plenitud?**  
 Realizaría todo aquello que siempre me dio miedo, sin pensar en las consecuencias. Me lanzaría sin importar la ansiedad o el “qué dirán”. Viajaría solo si fuera necesario, expresaría lo que siento sin reservas, y me permitiría vivir experiencias reales. No dejaría espacio para la duda o el arrepentimiento.
+
+## 💬 Parte 2: Actividad en parejas
+
+### Fortalezas en momentos difíciles
+
+Después de haber iniciado mis estudios superiores, pasé por un momento en el que me di cuenta de que estaba atrapado en una rutina. Todos los días eran iguales: clases, tareas, estudiar, dormir… y repetir. Al principio no parecía un problema, pero con el tiempo empecé a sentir que no tenía control sobre mi vida, que simplemente estaba cumpliendo con lo mínimo sin disfrutar ni encontrar propósito en lo que hacía.
+
+Durante esa etapa me volví inproductivo, me costaba concentrarme y cualquier avance me parecía insignificante. Me tomó tiempo darme cuenta de lo que me estaba pasando. Fue un proceso lento. Pero empecé a salir de ese estado haciendo cambios pequeños: ajustando mis horarios, participando en actividades diferentes, dándome descansos reales y hablando con personas que también habían pasado por algo parecido. Volver a tener metas pequeñas pero claras me ayudó a recuperar el enfoque. Entendí que salir de ese tipo de vacío no es automático, pero sí posible si uno se atreve a cambiar el ritmo y reconectar consigo mismo.
